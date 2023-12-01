@@ -1,0 +1,1 @@
+# Necessary-Conditions-for-Successful-Application-of-Intra--and-Inter-class-Common-Vector-Classifiers
